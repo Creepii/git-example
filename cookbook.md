@@ -13,3 +13,20 @@
     1 lime, juiced
     cooked rice, to serve (optional)
     dry roasted peanuts, to serve (optional)
+
+# Broccoli Cheddar Soup
+
+## Ingredients
+    4 tablespoons unsalted butter
+    1 medium yellow onion, chopped
+    ½ teaspoon sea salt
+    Freshly ground black pepper
+    3 garlic cloves, chopped
+    ¼ cup all-purpose flour
+    2 cups whole milk or unsweetened almond milk
+    2 cups vegetable broth
+    3 cups chopped broccoli florets
+    1 large carrot, julienned or finely chopped
+    ½ teaspoon Dijon mustard
+    8 ounces shredded cheddar cheese, about 2 heaping cups
+    Homemade croutons, for serving, optional
