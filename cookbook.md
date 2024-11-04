@@ -30,3 +30,15 @@
     ½ teaspoon Dijon mustard
     8 ounces shredded cheddar cheese, about 2 heaping cups
     Homemade croutons, for serving, optional
+
+# Vegan banana pancakes
+
+## Ingredients
+    1 large ripe banana (around 150g)
+    2 tbsp golden caster sugar
+    ¼ tsp fine salt
+    2 tbsp vegetable oil, plus extra for cooking
+    120g self-raising flour
+    ½ tsp baking powder
+    150ml oat, almond milk or soya milk
+    syrup, sliced banana and berries, to serve (optional)
