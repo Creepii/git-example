@@ -26,7 +26,7 @@
     2 cups whole milk or unsweetened almond milk
     2 cups vegetable broth
     3 cups chopped broccoli florets
-    1 large carrot, julienned or finely chopped
+    1 large carrot finely chopped
     ½ teaspoon Dijon mustard
     8 ounces shredded cheddar cheese, about 2 heaping cups
     Homemade croutons, for serving, optional
@@ -40,5 +40,5 @@
     2 tbsp vegetable oil, plus extra for cooking
     120g self-raising flour
     ½ tsp baking powder
-    150ml oat, almond milk or soya milk
+    150ml oat, almond milk or soy milk
     syrup, sliced banana and berries, to serve (optional)
