@@ -43,6 +43,6 @@
     150ml oat, almond milk or soy milk
     syrup, sliced banana and berries, to serve (optional)
 
-# Latter souup
+# Letter soup
 
-Thiz iz a receipe with ery bad pelling.
+This is a recipe with very bad spelling.
