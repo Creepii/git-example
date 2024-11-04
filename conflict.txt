@@ -1,6 +1,9 @@
 Round 1
-Paper
+Rock vs. Paper
+Incoming lost
 Round 2
-Rock
+Scissors vs. Rock
+Incoming lost
 Round 3
-Scissors
+Paper vs. Scissors
+Incoming lost
